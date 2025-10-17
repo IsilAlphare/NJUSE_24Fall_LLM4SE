@@ -1,0 +1,3 @@
+- 内容仅供参考，不一定是优秀/高分的
+- 更多大作业参考/期末考试复习参考，请访问我的个人notion site: https://www.notion.so/Starry-Dome-Home-28d8b1cc19aa81618a2fd02668f66acb
+- 还在持续更新中，如对您有帮助，可以给我一个star🌟，您的支持就是我的最大动力～
